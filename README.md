@@ -11,8 +11,4 @@ Welcome To My github!
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  at first i might be shy and reserved, but if i get comfier ill go crazy/j
                      ㅤㅤㅤㅤㅤㅤㅤㅤ                                           ㅤㅤㅤㅤㅤㅤㅤㅤ
-                       i dont support those ships: kaeluc,dottoscara,dottocollei,arlefuri.
-ㅤㅤㅤㅤㅤㅤㅤㅤ                                                                               ㅤㅤㅤㅤㅤㅤㅤㅤ
-                   im very sorry thats just my opinion!, everyone can have a different opinion,
-               ㅤㅤㅤㅤㅤㅤㅤㅤ                                                      ㅤㅤㅤㅤㅤㅤㅤㅤ           
-                                     anyways, ill add more links soon!
+                      

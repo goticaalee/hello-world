@@ -10,9 +10,9 @@ Welcome To My github!
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤim usually on the hoyoverse zone, as i enjoy genshin/hsr/ hi3rd!
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  at first i might be shy and reserved, but if i get comfier ill go crazy/j
-                     ㅤㅤㅤㅤㅤㅤㅤㅤ
+                     ㅤㅤㅤㅤㅤㅤㅤㅤ                                           ㅤㅤㅤㅤㅤㅤㅤㅤ
                        i dont support those ships: kaeluc,dottoscara,dottocollei,arlefuri.
-ㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤ                                                                               ㅤㅤㅤㅤㅤㅤㅤㅤ
                    im very sorry thats just my opinion!, everyone can have a different opinion,
-               ㅤㅤㅤㅤㅤㅤㅤㅤ
+               ㅤㅤㅤㅤㅤㅤㅤㅤ                                                      ㅤㅤㅤㅤㅤㅤㅤㅤ           
                                      anyways, ill add more links soon!

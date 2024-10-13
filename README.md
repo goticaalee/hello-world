@@ -5,10 +5,10 @@ Welcome To My github!
 
 ㅤㅤ      im always up to make new friends! just be aware of timezones and how busy i can be sometimes,
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤplease do not copy my ponies! i put efforts in making them,
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤplease do not copy my ponies! i put efforts in making them,
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤim usually on the hoyoverse zone, as i enjoy genshin/hsr/ hi3rd!
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤim usually on the hoyoverse zone, as i enjoy genshin/hsr/ hi3rd!
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  at first i might be shy and reserved, but if i get comfier ill go crazy/j
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  at first i might be shy and reserved, but if i get comfier ill go crazy/j
                      ㅤㅤㅤㅤㅤㅤㅤㅤ                                           ㅤㅤㅤㅤㅤㅤㅤㅤ
                       
